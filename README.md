@@ -1,3 +1,3 @@
 Cette nouvelle version de mon BetterMotherFuckingWebsite va me permettre de gagner 250 milliards de dollars zimbabwéen. Pour ce faire, j'ai du afficher une popup en plein milieu de la page, au bout de 10 secondes sur le site, et qui affiche "Hey le site xxxvidsxxx est trop bien. Viens dessus stp please". Je l'ai ensuite amélioré en laissant à l'utilisateur le choix ce ce qu'il veut faire : soit aller sur xxxvidsxxx, soit rester sur mon site génial.
 
-Lien de mon site:
+Lien de mon site: http://numerous-cannon.surge.sh/
